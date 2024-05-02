@@ -2,7 +2,7 @@
 - 👀 I’m interested in QA Manual Testing & 3D printing
 - 🌱 I’m currently learning QA manual course at Hillel IT School
 - 💞️ I’m looking to collaborate on biggest foreign companies 
-- 📫 You can reach me at LinkedIn, telegram,Viber +380939158669
+- 📫 You can reach me at LinkedIn, telegram,Viber +380939119720
 - ⚡ Fun fact: if you laugh you loose.
 
 <!---
